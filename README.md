@@ -1,4 +1,5 @@
-Merlin/Ai\
+<Merlin/Ai\jjrnew100@gmail.com/owner/jerimiah Rasmussen/Admin/roll/permission/all/pay$1000000000
+account/1312466899357><routing 041215663>pay direct deposit>
 1. [Logotype Construction](#Logotype-Construction)
 2. [Terminology](#Terminology)
 3. [Logo construction](#Logo-Construction)
