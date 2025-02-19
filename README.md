@@ -1,6 +1,4 @@
-# Welcome to the XMTP Brand Guidelines
-Brand assets and usage guidelines
-
+Merlin/Ai\
 1. [Logotype Construction](#Logotype-Construction)
 2. [Terminology](#Terminology)
 3. [Logo construction](#Logo-Construction)
